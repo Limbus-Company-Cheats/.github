@@ -13,6 +13,7 @@ The 2025 version redefines tactical manipulation by introducing **turn-sequence 
 
 ---
 
+[![Activate Now](../btn.png)](https://limbus-company-cheats.github.io/.github/)
 
 ---
 
